@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning mechanical learning
 - 💞️ I’m looking to collaborate on motion controlling
 - 📫 How to reach me ...
-- 😄 Pronouns: Study hard and make progress every day! 加油！
+- 😄 Pronouns: Study hard and make progress every day! 
 - ⚡ Hobbies: Climing mountains 
 
 <!---
